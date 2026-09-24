@@ -1,0 +1,1 @@
+# yamamoto-log.github.io
